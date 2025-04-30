@@ -1,2 +1,0 @@
-# Komron05
-Tarix 
